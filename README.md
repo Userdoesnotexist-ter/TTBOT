@@ -1,2 +1,2 @@
 # TTBOT
-Territorial.io tool
+yes yes tt tool. pretty bad but idgaf
